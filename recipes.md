@@ -114,3 +114,42 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Oreo Cheesecake
+Crust:
+- 24 Oreo cookies, finely crushed
+- 1/4 cup (60g) melted butter
+
+Cheesecake Filling:
+- 24 oz (680g) cream cheese, softened
+- 1 cup (200g) granulated sugar
+- 1 cup (240ml) sour cream
+- 3 large eggs
+- 1 tsp vanilla extract
+- 12 Oreo cookies, chopped
+
+Topping:
+- 1 cup (240ml) heavy whipping cream
+- 1/4 cup (30g) powdered sugar
+- 6-8 Oreo cookies, chopped or crushed
+
+Instructions:
+Prepare the Crust:
+    Preheat your oven to 325°F (163°C).
+    Mix the finely crushed Oreo cookies with melted butter until well combined.
+    Press the mixture into the bottom of a 9-inch (23cm) springform pan.
+    Bake the crust for 10 minutes, then set aside to cool.
+Make the Cheesecake Filling:
+    In a large bowl, beat the softened cream cheese and granulated sugar until smooth and creamy.
+    Add the sour cream, eggs, and vanilla extract. Mix until fully combined and smooth.
+    Gently fold in the chopped Oreo cookies.
+Bake the Cheesecake:
+    Pour the cheesecake filling over the cooled crust in the springform pan.
+    Place the springform pan inside a larger baking pan. Fill the larger pan with hot water halfway up the sides of the springform pan (this water bath helps prevent cracking).
+    Bake for about 60-70 minutes, or until the center is almost set (it should still have a slight jiggle).
+    Turn off the oven, crack the oven door, and let the cheesecake cool in the oven for 1 hour.
+    Remove the cheesecake from the oven and the water bath. Chill in the refrigerator for at least 4 hours, preferably overnight.
+Prepare the Topping:
+    In a medium bowl, whip the heavy cream and powdered sugar until stiff peaks form.
+    Spread the whipped cream over the chilled cheesecake.
+    Sprinkle chopped or crushed Oreo cookies on top for decoration.
